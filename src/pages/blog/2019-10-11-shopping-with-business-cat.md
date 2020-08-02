@@ -9,7 +9,6 @@ tags:
   - kitty cat
   - cosmos
 ---
-
 ![flavor wheel](/img/animal-business-cat.jpg)
 
 Cat ipsum dolor sit amet, wake up wander around the house making large amounts of noise jump on top of your human's bed and fall asleep again toilet paper attack claws fluff everywhere meow miao french ciao litterbox and sleep on keyboard and meow to be let out. Cats secretly make all the worlds muffins howl uncontrollably for no reason bring your owner a dead bird stand in front of the computer screen, and climb leg. Attack the dog then pretend like nothing happened taco cat backwards spells taco cat for claws in the eye of the beholder and fight an alligator and win. There's a forty year old lady there let us feast under the bed sleep on dog bed, force dog to sleep on floor try to jump onto window and fall while scratching at wall and i cry and cry and cry unless you pet me, and then maybe i cry just for fun, and scratch me there, elevator butt. Tuxedo cats always looking dapper cats making all the muffins and who's the baby, and lick left leg for ninety minutes, still dirty litter kitter kitty litty little kitten big roar roar feed me. Rub face on everything leave hair everywhere pose purrfectly to show my beauty, rub against owner because nose is wet for so you're just gonna scroll by without saying meowdy?. Purr when being pet carefully drink from water glass and then spill it everywhere and proceed to lick the puddle attack the dog then pretend like nothing happened so need to chase tail. Walk on keyboard.
